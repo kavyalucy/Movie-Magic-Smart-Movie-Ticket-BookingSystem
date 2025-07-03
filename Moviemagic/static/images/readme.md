@@ -1,1 +1,1 @@
-movie poster
+movie posters
